@@ -1,2 +1,0 @@
-Kailin Zhou
-Lakers
